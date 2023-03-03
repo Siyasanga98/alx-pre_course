@@ -1,1 +1,0 @@
-Thing take time
